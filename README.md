@@ -1,4 +1,4 @@
-- Merhaba ben Ege yani Waltz 2 yıldır yazılımla uğraşıyorum bukadar   
+- 
   
 
 <br/>  
